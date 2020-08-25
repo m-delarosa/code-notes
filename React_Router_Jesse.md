@@ -1,0 +1,3 @@
+Video:
+https://wework.zoom.us/rec/play/vJV5fuD9qzw3TtaX4QSDBaJ8W427f_6s2ncdq_MKyk28B3QFZ1ryZLQaMLN5n2AtCsfXPPYyFh1J2HuN?continueMode=true&_x_zm_rtaid=4FYYvWGoRHO_GxsnqN9j9A.1588713085737.0ee00738c8e104f964b9d249e0571361&_x_zm_rhtaid=605
+
